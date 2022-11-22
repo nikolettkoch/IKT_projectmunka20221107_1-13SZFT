@@ -1,1 +1,0 @@
-# IKT_projectmunka20221107_1-13SZFT
